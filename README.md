@@ -7,4 +7,4 @@
           require a varied skillset, so I'm open to other possibilities too.
 
 - 📫 How to reach me ...
-          You can email me at Abigail.Herron@mail.itsligo.ie until I find a better way to organise my GitHub account, and what I intend to use it for later on.
+          You can email me at abigailherron@hotmail.com, or add me on LinkedIn at https://www.linkedin.com/in/abigail-herron-a4534851/.
